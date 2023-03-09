@@ -1,1 +1,1 @@
-# Yeah..-Buddy-Fitness-Hub
+# Yeah..! Buddy Fitness-Hub
